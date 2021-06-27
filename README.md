@@ -1,8 +1,10 @@
 # Biofisica
 
-Este repositório é destinado aos estudantes do ISCISA do primeiro ano - 2021
+Este repositório é destinado aos estudantes do ISCISA do primeiro ano - 2021. Todo o material (AT e AP) serao depositados neste repositorio, pelo que, o estudante deve visitar este repositorio quase todos os dias. 
 
-A aula teorica # 01 ainda esta tem falta de dois capitulos.
+Votos de bons estudos!
+
+
 
 ----------------------------------------------------------------------------------------------------------------------------------
 
