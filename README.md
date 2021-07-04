@@ -8,7 +8,6 @@ Votos de bons estudos!
 
 **A aula prática (2021_Biofisica_AP-1) já está desponível, comecem a resolver!**
 
-
 ----------------------------------------------------------------------------------------------------------------------------------
 
 Link para os livros de SILVERTHORN e OKUNO: https://drive.google.com/drive/folders/1JEznzsu3q0kcPzXSKTO2YEKk7_FK5hc_?usp=sharing
