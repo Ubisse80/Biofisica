@@ -6,7 +6,20 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**A aula prática (2021_Biofisica_AP-1) já está desponível, comecem a resolver!**
+**Aulas online amanha 14/07/2021**
+
+
+Topic: Mecanica
+
+Time: Jul 14, 2021 10:30 AM Johannesburg
+
+Join Zoom Meeting
+
+https://us02web.zoom.us/j/81841621794?pwd=WmRBYmtkanpCNitRL1VHMlVkZ3JVdz09
+
+Meeting ID: 818 4162 1794
+
+Passcode: 986586
 
 ----------------------------------------------------------------------------------------------------------------------------------
 
