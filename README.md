@@ -6,20 +6,22 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aulas online amanha 14/07/2021**
+**Aulas online hoje 14/07/2021**
 
 
-Topic: Mecanica
 
-Time: Jul 14, 2021 10:30 AM Johannesburg
+
+Topic: Continuacao da aula sobre a Mecanica
+Time: Jul 14, 2021 18:00 PM Harare, Pretoria
 
 Join Zoom Meeting
+https://us02web.zoom.us/j/87484467860?pwd=WDBnUEJZZllEdlJLM2V0MWZqakJZQT09
 
-https://us02web.zoom.us/j/81841621794?pwd=WmRBYmtkanpCNitRL1VHMlVkZ3JVdz09
+Meeting ID: 874 8446 7860
+Passcode: 870331
 
-Meeting ID: 818 4162 1794
 
-Passcode: 986586
+
 
 ----------------------------------------------------------------------------------------------------------------------------------
 
