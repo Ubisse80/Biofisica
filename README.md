@@ -6,22 +6,24 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aulas online hoje 14/07/2021**
+**Aulas online hoje 16/07/2021**
 
 
 
+Topic: Resolucao da AP#01 - Biomecanica
 
-Topic: Continuacao da aula sobre a Mecanica
-
-Time: Jul 14, 2021 18:00 PM Harare, Pretoria
+Time: Jul 16, 2021 06:00 PM Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/87484467860?pwd=WDBnUEJZZllEdlJLM2V0MWZqakJZQT09
+https://us02web.zoom.us/j/87693693812?pwd=THgyTWhyeGgrcUlOTXhGM2hWMitsdz09
 
-Meeting ID: 874 8446 7860
+Meeting ID: 876 9369 3812
 
-Passcode: 870331
+Passcode: 937328
+
+
+
 
 
 
