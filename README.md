@@ -21,23 +21,26 @@ Access Passcode: =$0bHrUj
 ------------------------------------------------------------------------------------------------------------------------------
 
 
-**Aulas online hoje 21/07/2021**
+**Aulas online hoje 23/07/2021**
 
 
 
-Maria dos Anjos Amós is inviting you to a scheduled Zoom meeting.
 
-Topic: Resolucao da AP#01 - Biomecanica- Cont.
 
-Time: Jul 21, 2021 06:00 PM Johannesburg
+Topic: Tema#2 - Mecanica dos fluidos
+
+Time: Jul 23, 2021 10:25 AM Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/81194465384?pwd=bnlHK2tFU2lCQld2NCtnYTcrV0o4QT09
+https://us02web.zoom.us/j/87814102297?pwd=TWtJM2ZYRmJjOXNudkJ2N0RuMWQ3Zz09
 
-Meeting ID: 811 9446 5384
+Meeting ID: 878 1410 2297
 
-Passcode: 933962
+Passcode: 735038
+
+
+
 
 
 
