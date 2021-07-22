@@ -7,6 +7,8 @@ Votos de bons estudos!
 -------------------------------------------------------------------------------------------------------------------------------
 **Links para os videos**
 
+**1.Recording #1**
+
 Topic: Resolucao da AP#01 - Biomecanica
 
 Start Time : Jul 16, 2021 05:58 PM
@@ -17,7 +19,7 @@ https://us02web.zoom.us/rec/share/FhYBuiZH0qnZqfe5M6pfvgyNZT1fAXOLkSZi6qazHa0p7E
 
 Access Passcode: =$0bHrUj
 
-________________________________________________________________
+**2.Recording #2**
 
 Topic: Resolucao da AP#01 - Biomecanica- Cont.
 
