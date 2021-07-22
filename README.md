@@ -17,7 +17,7 @@ https://us02web.zoom.us/rec/share/FhYBuiZH0qnZqfe5M6pfvgyNZT1fAXOLkSZi6qazHa0p7E
 
 Access Passcode: =$0bHrUj
 
---------------------------
+>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
 
 Topic: Resolucao da AP#01 - Biomecanica- Cont.
 
@@ -33,7 +33,7 @@ Access Passcode: X&8M.Qp2
 ------------------------------------------------------------------------------------------------------------------------------
 
 
-**Aulas online hoje 23/07/2021**
+**Aula online 6 feira:  23/07/2021**
 
 
 
