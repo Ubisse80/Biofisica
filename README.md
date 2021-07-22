@@ -17,6 +17,18 @@ https://us02web.zoom.us/rec/share/FhYBuiZH0qnZqfe5M6pfvgyNZT1fAXOLkSZi6qazHa0p7E
 
 Access Passcode: =$0bHrUj
 
+--------------------------
+
+Topic: Resolucao da AP#01 - Biomecanica- Cont.
+
+Start Time : Jul 21, 2021 06:13 PM
+
+Meeting Recording:
+
+https://us02web.zoom.us/rec/share/fidIA0xwJb7kpE21dwezmpGZ8Vfeq8N1oF21jlOfwI0ASBCBiu24N2SihX-qRyx0.iQz9zUl2J1psJkcm
+
+Access Passcode: X&8M.Qp2
+
 
 ------------------------------------------------------------------------------------------------------------------------------
 
