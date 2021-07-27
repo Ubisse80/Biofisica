@@ -5,6 +5,26 @@ Este repositório é destinado aos estudantes do ISCISA do primeiro ano - 2021. 
 Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
+
+**Aula online 4 feira:  28/07/2021     as 10:30 hrs**
+
+
+Topic: Mecanica dos fluidos
+
+Time: Jul 28, 2021 10:30 AM Johannesburg
+
+Join Zoom Meeting
+
+https://us02web.zoom.us/j/83922351968?pwd=QVNiR3VJZWgxRkc3YlV0RGpUdmdEdz09
+
+Meeting ID: 839 2235 1968
+
+Passcode: 824202
+
+
+
+-------------------------------------------------------------------------------------------------------------------
+
 **Links para os videos**
 
 **1.Recording #1**
@@ -32,23 +52,10 @@ https://us02web.zoom.us/rec/share/fidIA0xwJb7kpE21dwezmpGZ8Vfeq8N1oF21jlOfwI0ASB
 Access Passcode: X&8M.Qp2
 
 
-------------------------------------------------------------------------------------------------------------------------------
 
 
-**Aula online 4 feira:  28/07/2021     as 10:30 hrs**
 
 
-Topic: Mecanica dos fluidos
-
-Time: Jul 28, 2021 10:30 AM Johannesburg
-
-Join Zoom Meeting
-
-https://us02web.zoom.us/j/83922351968?pwd=QVNiR3VJZWgxRkc3YlV0RGpUdmdEdz09
-
-Meeting ID: 839 2235 1968
-
-Passcode: 824202
 
 
 
