@@ -35,23 +35,23 @@ Access Passcode: X&8M.Qp2
 ------------------------------------------------------------------------------------------------------------------------------
 
 
-**Aula online 6 feira:  23/07/2021**
+**Aula online 4 feira:  28/07/2021     as 10:30 hrs**
 
 
+Topic: Mecanica dos fluidos
 
-
-
-Topic: Tema#2 - Mecanica dos fluidos
-
-Time: Jul 23, 2021 10:25 AM Johannesburg
+Time: Jul 28, 2021 10:30 AM Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/87814102297?pwd=TWtJM2ZYRmJjOXNudkJ2N0RuMWQ3Zz09
+https://us02web.zoom.us/j/83922351968?pwd=QVNiR3VJZWgxRkc3YlV0RGpUdmdEdz09
 
-Meeting ID: 878 1410 2297
+Meeting ID: 839 2235 1968
 
-Passcode: 735038
+Passcode: 824202
+
+
+
 
 
 
