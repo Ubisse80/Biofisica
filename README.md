@@ -6,20 +6,22 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 4 feira:  28/07/2021     as 10:30 hrs**
+**Aula online 4 feira:  04/08/2021  as 10:30 hrs**
 
+Topic: Mecanica dos fluidos - Cont.
 
-Topic: Mecanica dos fluidos
-
-Time: Jul 28, 2021 10:30 AM Johannesburg
+Time: Aug 4, 2021 10:30 AM Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/83922351968?pwd=QVNiR3VJZWgxRkc3YlV0RGpUdmdEdz09
+https://us02web.zoom.us/j/89171351499?pwd=eHZDaUk0cWV2WCtHYWxJQ3dXczFiQT09
 
-Meeting ID: 839 2235 1968
+Meeting ID: 891 7135 1499
 
-Passcode: 824202
+Passcode: 912920
+
+
+
 
 -------------------------------------------------------
 
