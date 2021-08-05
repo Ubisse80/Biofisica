@@ -6,7 +6,7 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 4 feira:  06/08/2021  as 08:25 hrs**
+**Aula online 6 feira:  06/08/2021  as 08:25 hrs**
 
 Mecanica dos fluidos - AT- Conclusao 
 
