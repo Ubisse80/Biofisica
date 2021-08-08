@@ -23,7 +23,7 @@ Link da videochamada: https://meet.google.com/jnb-iqim-msj
 
 **link para depositar TPC-2**
 
-https://drive.google.com/drive/folders/1UAroVkhnSmmVclbGQOgkEoUGLC-CiN1L?usp=sharing
+https://drive.google.com/drive/folders/1YtBsossUGUeVq1wDy4sDVg2Tw0Nwp8bY?usp=sharing
 
 
 -------------------------------------------------------------------------------------------------------------------
