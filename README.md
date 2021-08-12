@@ -6,15 +6,15 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 4 feira:  11/08/2021  as 08:25 hrs**
+**Aula online 6 feira:  13/08/2021  as 08:30 hrs**
 
-Mecanica dos fluidos - Gases ideais. Conclusao de AP#1
+AP
 
-Quarta-feira, 11 de agosto · 10:30 – 12:30
+Sexta-feira, 13 de agosto · 08:30 – 10:30
 
 Informações de participação do Google Meet
 
-Link da videochamada: https://meet.google.com/abp-jgow-fxe
+Link da videochamada: https://meet.google.com/rne-vwos-zfv
 
 
 
