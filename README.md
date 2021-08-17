@@ -6,16 +6,15 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 6 feira:  13/08/2021  as 08:30 hrs**
+**Aula online 4feira:  18/08/2021  as 08:30 hrs**
 
-AP
+AT- Termodinamica
 
-Sexta-feira, 13 de agosto · 08:30 – 10:30
+Quarta-feira, 18 de agosto · 10:30 – 12:30
 
 Informações de participação do Google Meet
 
-Link da videochamada: https://meet.google.com/rne-vwos-zfv
-
+Link da videochamada: https://meet.google.com/foc-hjau-vnr
 
 
 
