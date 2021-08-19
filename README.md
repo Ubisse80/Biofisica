@@ -6,15 +6,24 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 4feira:  18/08/2021  as 08:30 hrs**
+**Aula online 6feira:  20/08/2021  as 08:30 hrs**
 
-AT- Termodinamica
+Sala 5 Matola is inviting you to a scheduled Zoom meeting.
 
-Quarta-feira, 18 de agosto · 10:30 – 12:30
+Topic: AP#2 - Mecanica dos fluidos
 
-Informações de participação do Google Meet
+Time: Aug 20, 2021 08:30 Johannesburg
 
-Link da videochamada: https://meet.google.com/foc-hjau-vnr
+Join Zoom Meeting
+
+https://us02web.zoom.us/j/86342962339?pwd=R3YvNnBWek1UNzNaazFsZ3ZFUEJ6Zz09
+
+Meeting ID: 863 4296 2339
+
+Passcode: 130195
+
+
+
 
 
 
