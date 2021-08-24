@@ -6,25 +6,21 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 6feira:  20/08/2021  as 08:30 hrs**
+**Aula online 4feira:  25/08/2021  as 08:30 hrs**
 
 Sala 5 Matola is inviting you to a scheduled Zoom meeting.
 
-Topic: AP#2 - Mecanica dos fluidos
+Topic: Conclusao da AP#2
 
-Time: Aug 20, 2021 08:30 Johannesburg
+Time: Aug 25, 2021 10:30 Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/86342962339?pwd=R3YvNnBWek1UNzNaazFsZ3ZFUEJ6Zz09
+https://us02web.zoom.us/j/81357244670?pwd=Y3prTGJ4bVRMUTVIQUl2blVJaGhydz09
 
-Meeting ID: 863 4296 2339
+Meeting ID: 813 5724 4670
 
-Passcode: 130195
-
-
-
-
+Passcode: 917327
 
 
 -------------------------------------------------------
