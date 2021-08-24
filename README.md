@@ -6,7 +6,7 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 4feira:  25/08/2021  as 08:30 hrs**
+**Aula online 4feira:  25/08/2021  as 10:30 hrs**
 
 Sala 5 Matola is inviting you to a scheduled Zoom meeting.
 
