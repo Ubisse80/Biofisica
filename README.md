@@ -58,9 +58,17 @@ https://us02web.zoom.us/rec/share/fidIA0xwJb7kpE21dwezmpGZ8Vfeq8N1oF21jlOfwI0ASB
 
 Access Passcode: X&8M.Qp2
 
+**3.Recording #3**
 
+Topic: AP#2 - Mecanica dos fluidos
 
+Date: Aug 20, 2021 08:30 Johannesburg
 
+Meeting Recording:
+
+https://us02web.zoom.us/rec/share/UWu4Aat6Nak4YlBwvyjc-TOQcLOihwzhIqwak30bjSaKj3RwkB3TbojxoZy1HxI.1jQF_hwZr_3du8yE
+
+Access Passcode: #H2!yJrc
 
 
 
