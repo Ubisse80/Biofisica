@@ -6,21 +6,23 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 4feira:  25/08/2021  as 10:30 hrs**
+**Aula online 6feira: 27/08/2021  as 10:30 hrs**
 
 Sala 5 Matola is inviting you to a scheduled Zoom meeting.
 
-Topic: Conclusao da AP#2
+Topic: Tema#3 mecanismos de transferencia de calor - Termorregulacao
 
-Time: Aug 25, 2021 10:30 Johannesburg
+Time: Aug 27, 2021 08:30 Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/81357244670?pwd=Y3prTGJ4bVRMUTVIQUl2blVJaGhydz09
+https://us02web.zoom.us/j/83711865902?pwd=aGpURVIybkRmbUtXRzFLYzZNWVFyUT09
 
-Meeting ID: 813 5724 4670
+Meeting ID: 837 1186 5902
 
-Passcode: 917327
+Passcode: 534341
+
+
 
 
 -------------------------------------------------------
