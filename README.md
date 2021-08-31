@@ -6,23 +6,19 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 6feira: 27/08/2021  as 10:30 hrs**
+**Aula online 4feira: 01/09/2021  as 10:30 hrs**
 
-Sala 5 Matola is inviting you to a scheduled Zoom meeting.
+Topic: AT-2lei da termodinamica_Entropia. Energia livre de Gibbs
 
-Topic: Tema#3 mecanismos de transferencia de calor - Termorregulacao
-
-Time: Aug 27, 2021 08:30 Johannesburg
+Time: Sep 1, 2021 10:30 Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/83711865902?pwd=aGpURVIybkRmbUtXRzFLYzZNWVFyUT09
+https://us02web.zoom.us/j/84535778744?pwd=S1hlRE1CYXlYdG5UUWZLdTIzdU55Zz09
 
-Meeting ID: 837 1186 5902
+Meeting ID: 845 3577 8744
 
-Passcode: 534341
-
-
+Passcode: 839800
 
 
 -------------------------------------------------------
