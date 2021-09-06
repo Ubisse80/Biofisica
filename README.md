@@ -6,19 +6,21 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 4feira: 01/09/2021  as 10:30 hrs**
+**Aula online 3feira: 07/09/2021  as 8:00 hrs**
 
-Topic: AT-2lei da termodinamica_Entropia. Energia livre de Gibbs
+Topic: preparacao para teste - 1
 
-Time: Sep 1, 2021 10:30 Johannesburg
+Time: Sep 7, 2021 08:00 Johannesburg
 
 Join Zoom Meeting
+https://us02web.zoom.us/j/88057449129?pwd=NUEvK1NTdGlabzZVazdrbHJqRkVodz09
 
-https://us02web.zoom.us/j/84535778744?pwd=S1hlRE1CYXlYdG5UUWZLdTIzdU55Zz09
+Meeting ID: 880 5744 9129
 
-Meeting ID: 845 3577 8744
+Passcode: 059693
 
-Passcode: 839800
+
+
 
 
 -------------------------------------------------------
