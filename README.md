@@ -27,7 +27,6 @@ Passcode: 059693
 
 **link para depositar correccao de teste-1**
 
-https://drive.google.com/drive/folders/1dAd66w7RU7h1Wl98Br1LdeCLWSiiG2Hp?usp=sharing
 
 
 -------------------------------------------------------------------------------------------------------------------
