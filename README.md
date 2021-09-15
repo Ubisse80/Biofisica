@@ -6,19 +6,23 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 6feira: 10/09/2021  as 8:30 hrs**
+**Aula online 4feira: 15/09/2021  as 10:30 hrs**
 
-Topic: Optica geometrica
 
-Time: Sep 10, 2021 08:30 Johannesburg
+Topic: AT - Optica
+
+Time: Sep 15, 2021 10:30 Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/86320744766?pwd=bDFOL3dqdkVRZ2FFaTZDNVN0ZGVOQT09
+https://us02web.zoom.us/j/83933276541?pwd=YkNjVlAwdUxNc0hZdHptNm5xT1NyQT09
 
-Meeting ID: 863 2074 4766
+Meeting ID: 839 3327 6541
 
-Passcode: 378722
+Passcode: 278106
+
+
+
 
 
 
