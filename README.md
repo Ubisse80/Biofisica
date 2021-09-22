@@ -6,20 +6,23 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 4feira: 15/09/2021  as 10:30 hrs**
+**Aula online 4feira: 22/09/2021  as 10:30 hrs**
 
 
-Topic: AT - Optica
+Topic: Optica ondulatoria
 
-Time: Sep 15, 2021 10:30 Johannesburg
+Time: Sep 22, 2021 10:30 Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/83933276541?pwd=YkNjVlAwdUxNc0hZdHptNm5xT1NyQT09
+https://us02web.zoom.us/j/81745456542?pwd=clZ3UlhjZERyN3pTTnQrUmJUcFZYQT09
 
-Meeting ID: 839 3327 6541
+Meeting ID: 817 4545 6542
 
-Passcode: 278106
+Passcode: 108200
+
+
+
 
 
 
