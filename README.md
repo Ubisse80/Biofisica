@@ -6,20 +6,22 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 4feira: 22/09/2021  as 10:30 hrs**
+**Aula online 6feira: 01/10/2021  as 8:30 hrs**
 
+Topic: Instrumentacao basica
 
-Topic: Optica ondulatoria
-
-Time: Sep 22, 2021 10:30 Johannesburg
+Time: Oct 1, 2021 08:30 Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/81745456542?pwd=clZ3UlhjZERyN3pTTnQrUmJUcFZYQT09
+https://us02web.zoom.us/j/87915396496?pwd=d29DdVdQalNsZ3g5aXRyZUhKWm4xZz09
 
-Meeting ID: 817 4545 6542
+Meeting ID: 879 1539 6496
 
-Passcode: 108200
+Passcode: 440578
+
+
+
 
 
 
