@@ -6,19 +6,21 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 6feira: 01/10/2021  as 8:30 hrs**
+**Aula online 4feira: 06/10/2021  as 10:30 hrs**
 
-Topic: Instrumentacao basica
+Topic: Electricidade (Bioelectricidade)
 
-Time: Oct 1, 2021 08:30 Johannesburg
+Time: Oct 6, 2021 10:30 Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/87915396496?pwd=d29DdVdQalNsZ3g5aXRyZUhKWm4xZz09
+https://us02web.zoom.us/j/83000754817?pwd=UHJCVDBDWmJCeVBuaFBWNFp6ZkpRdz09
 
-Meeting ID: 879 1539 6496
+Meeting ID: 830 0075 4817
 
-Passcode: 440578
+Passcode: 594871
+
+
 
 
 
