@@ -6,19 +6,21 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 4feira: 06/10/2021  as 10:30 hrs**
+**Aula online 6feira: 08/10/2021  as 8:30 hrs**
 
-Topic: Electricidade (Bioelectricidade)
+Topic: Resolucao da Ficha sobre optica - Grupo-II
 
-Time: Oct 6, 2021 10:30 Johannesburg
+Time: Oct 8, 2021 08:30 Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/83000754817?pwd=UHJCVDBDWmJCeVBuaFBWNFp6ZkpRdz09
+https://us02web.zoom.us/j/82537863971?pwd=NU1BYTBCUldvc1k5K3R2NUlsM0NqZz09
 
-Meeting ID: 830 0075 4817
+Meeting ID: 825 3786 3971
 
-Passcode: 594871
+Passcode: 599855
+
+
 
 
 
