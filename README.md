@@ -24,9 +24,9 @@ Passcode: 599855
 
 **Datas de entrega de trabalhos**
 
-> 10/10/2021, 16:00hrs - Polarizacao da luz (***link)
+> 10/10/2021, 16:00hrs - Polarizacao da luz (***link***)
 
-> 24/10/2021, 18:00hrs  _ Trabalhos em grupos (***link)
+> 24/10/2021, 18:00hrs  _ Trabalhos em grupos (***link***)
 
 
 
