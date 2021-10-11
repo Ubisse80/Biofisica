@@ -6,27 +6,31 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 6feira: 08/10/2021  as 8:30 hrs**
+**Aula online 3feira:12/10/2021  as 9:00 hrs**
 
-Topic: Resolucao da Ficha sobre optica - Grupo-II
 
-Time: Oct 8, 2021 08:30 Johannesburg
+Topic: Bioelectricidade: Potenciais de repouso  e de accao
+
+Time: Oct 12, 2021 09:00 Johannesburg
 
 Join Zoom Meeting
 
-https://us02web.zoom.us/j/82537863971?pwd=NU1BYTBCUldvc1k5K3R2NUlsM0NqZz09
+https://us02web.zoom.us/j/87869762141?pwd=azhHMGhuWEt5Y0xNcFd2WXpFbG4rZz09
 
-Meeting ID: 825 3786 3971
+Meeting ID: 878 6976 2141
 
-Passcode: 599855
+Passcode: 876493
+
+
+
 
 --------------------------------------------------------------------------------------------------------------------------------
 
 **Datas de entrega de trabalhos**
 
-> 10/10/2021, 16:00hrs - Polarizacao da luz (***link***)
+> 10/10/2021, 16:00hrs - Polarizacao da luz (***https://drive.google.com/drive/folders/1j0OsdLSFOAYFmApSo0G6RJTxP--8mqdE?usp=sharing***)
 
-> 24/10/2021, 18:00hrs  _ Trabalhos em grupos (***link***)
+> 24/10/2021, 18:00hrs  _ Trabalhos em grupos (***https://drive.google.com/drive/folders/1eqT6DaAZIQR9ufLyRSgT570Y7LA8PSOo?usp=sharing***)
 
 ---------------------------------------------------------------------------------------------------------------------------
 
