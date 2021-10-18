@@ -10,7 +10,7 @@ Votos de bons estudos!
 
 Caros estudantes!
 
-Para o teste-2, resovam todos os exercicios das fichas 4 e 5.
+Para o teste-2, resolvam todos os exercicios das fichas 4 e 5.
 
 
 
