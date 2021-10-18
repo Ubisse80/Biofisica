@@ -6,20 +6,11 @@ Votos de bons estudos!
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-**Aula online 3feira:12/10/2021  as 9:00 hrs**
+**Conteudos para o teste 2**
 
+Caros estudantes!
 
-Topic: Bioelectricidade: Potenciais de repouso  e de accao
-
-Time: Oct 12, 2021 09:00 Johannesburg
-
-Join Zoom Meeting
-
-https://us02web.zoom.us/j/87869762141?pwd=azhHMGhuWEt5Y0xNcFd2WXpFbG4rZz09
-
-Meeting ID: 878 6976 2141
-
-Passcode: 876493
+Para o teste-2, resovam todos os exercicios das fichas 4 e 5.
 
 
 
