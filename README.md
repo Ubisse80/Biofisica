@@ -4,15 +4,23 @@ Este repositório é destinado aos estudantes do ISCISA do primeiro ano - 2021. 
 
 Votos de bons estudos!
 
--------------------------------------------------------------------------------------------------------------------------------
 
-**Conteudos para o teste 2**
+---------------------------------------------------------------------------------------------------------------------------
 
-Caros estudantes!
-
-Para o teste-2, resolvam todos os exercicios das fichas 4 e 5.
+**01/11/2021 - Aula teorica (online) - 17:30 - 19:30hrs**
 
 
+Topic: Atomo e Radioactividade
+
+Time: Nov 1, 2021 17:30 Johannesburg
+
+Join Zoom Meeting
+
+https://us02web.zoom.us/j/86323276858?pwd=dVVHUmhjWDRtSDdQSGoycGlrUU9rQT09
+
+Meeting ID: 863 2327 6858
+
+Passcode: 545149
 
 
 --------------------------------------------------------------------------------------------------------------------------------
@@ -23,9 +31,6 @@ Para o teste-2, resolvam todos os exercicios das fichas 4 e 5.
 
 > 24/10/2021, 18:00hrs  _ Trabalhos em grupos (***https://drive.google.com/drive/folders/1eqT6DaAZIQR9ufLyRSgT570Y7LA8PSOo?usp=sharing***)
 
----------------------------------------------------------------------------------------------------------------------------
-
-**12/10/2021 - Aula teorica (online) - 9:00 - 12:00hrs**
 
 -----------------------------------------------------------------------------
 
