@@ -6,7 +6,7 @@ Votos de bons estudos!
 
 
 ---------------------------------------------------------------------------------------------------------------------------
-**Aula online: Data: 4/6/2022   Hora: 08:00 – 10:00
+**Aula online: Data: 4/6/2022   Hora: 08:00 – 10:00**
 
 > Tema#1: Mecanica - Dinamica de uma particula
 >
