@@ -6,6 +6,14 @@ Votos de bons estudos!
 
 
 ---------------------------------------------------------------------------------------------------------------------------
+**Aula online: Data: 4/6/2022   Hora: 08:00 – 10:00
+
+> Tema#1: Mecanica - Dinamica de uma particula
+>
+>Link da videochamada: https://meet.google.com/grf-dgvo-xvk
+
+______________________________________________________________________________________________________________________________________
+
 
 **Site de registo academico do ISCISA**
 
