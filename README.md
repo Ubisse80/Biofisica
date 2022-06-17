@@ -6,11 +6,11 @@ Votos de bons estudos!
 
 
 ---------------------------------------------------------------------------------------------------------------------------
-**Aula online: Data: 4/6/2022   Hora: 08:00 – 10:00**
+**Aula online: Data: 18/6/2022   Hora: 08:30 – 10:00**
 
-> Tema#1: Mecanica - Dinamica de uma particula
->
->Link da videochamada: https://meet.google.com/grf-dgvo-xvk
+> Tema#1: Conclusao da resolucao de AP#1 
+
+> Link: https://meet.google.com/pxi-vvie-icw
 
 ______________________________________________________________________________________________________________________________________
 
