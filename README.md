@@ -10,7 +10,7 @@ Votos de bons estudos!
 
 >  Tema: Termodinamica - Cont.
 
-> Link:[//meet.google.com/wqv-nnqq-zxs](https://meet.google.com/wqv-nnqq-zxs)
+> Link:[https://meet.google.com/wqv-nnqq-zxs](https://meet.google.com/wqv-nnqq-zxs)
 
 
 ______________________________________________________________________________________________________________________________________
