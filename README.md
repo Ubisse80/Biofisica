@@ -6,11 +6,13 @@ Votos de bons estudos!
 
 
 ---------------------------------------------------------------------------------------------------------------------------
-**Aula online: Data: 06/07/2022   Hora: 18:00 – 19:00**
+**Aula online: Data: 14/07/2022   Hora: 08:45 – 10:25**
 
->  Continuacao de AP#2 & Preparacao para Teste-I 
+>  Tema: Termodinamica - Cont.
 
-> Link: https://meet.google.com/cpq-szas-afj
+> Link://meet.google.com/wqv-nnqq-zxs
+
+
 ______________________________________________________________________________________________________________________________________
 
 
