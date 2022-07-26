@@ -6,13 +6,11 @@ Votos de bons estudos!
 
 
 ---------------------------------------------------------------------------------------------------------------------------
-**Aula online: Data: 14/07/2022   Hora: 08:45 – 10:25**
+**Aula online: Data: 26/07/2022   Hora: 18:00 – 20:00**
 
->  Tema: Termodinamica - Cont.
+>  AT# optica geometrica
 
-> Link:[https://meet.google.com/wqv-nnqq-zxs](https://meet.google.com/wqv-nnqq-zxs)
-
-
+> Link: https://meet.google.com/pwm-xkht-dip
 ______________________________________________________________________________________________________________________________________
 
 
