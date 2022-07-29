@@ -4,6 +4,12 @@ Este repositório é destinado aos estudantes do ISCISA do primeiro ano do curso
 
 Votos de bons estudos!
 
+----------------------------------------------------------------------------------
+**Link para submeter a resolucao de AP#3**
+
+Arraste o seu trabalho para a pasta. Nao abra a pasta, somente arraste o seu trabalho e largue na pasta!
+
+> https://drive.google.com/drive/folders/1iAicELOxZ5V0WQbemx1HC9u_nyO72qmX?usp=sharing
 
 ---------------------------------------------------------------------------------------------------------------------------
 **Aula online: |Data: 29/07/2022  |  Hora: 07:20 – 08:50 hrs**
