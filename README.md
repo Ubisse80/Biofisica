@@ -12,11 +12,11 @@ Arraste o seu trabalho para a pasta. Nao abra a pasta, somente arraste o seu tra
 > https://drive.google.com/drive/folders/1iAicELOxZ5V0WQbemx1HC9u_nyO72qmX?usp=sharing
 
 ---------------------------------------------------------------------------------------------------------------------------
-**Aula online: |Data: 29/07/2022  |  Hora: 07:20 – 08:50 hrs**
+**Aula online: |Data:02/08/2022  |  Hora: 18:00 – 20:00 hrs**
 
-> Tema#4: Optica - Cont.
+> Tema: Conclusao da AT#4 e Resolucao da AP#3
 
-> Link: https://meet.google.com/hbo-thoh-dej
+> Link: https://meet.google.com/zzp-oanp-oxp
 ______________________________________________________________________________________________________________________________________
 
 
