@@ -12,11 +12,13 @@ Arraste o seu trabalho para a pasta. Nao abra a pasta, somente arraste o seu tra
 > https://drive.google.com/drive/folders/1iAicELOxZ5V0WQbemx1HC9u_nyO72qmX?usp=sharing
 
 ---------------------------------------------------------------------------------------------------------------------------
-**Aula online: |Data:02/08/2022  |  Hora: 18:00 – 20:00 hrs**
+**Aula online: |Data:30/08/2022  |  Hora: 18:15 – 19:15 hrs**
 
-> Tema: Conclusao da AT#4 e Resolucao da AP#3
+> Tema: Preparacao para Teste-2
 
-> Link: https://meet.google.com/zzp-oanp-oxp
+> Link: https://meet.google.com/xhw-swtu-huf
+
+
 ______________________________________________________________________________________________________________________________________
 
 
